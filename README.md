@@ -1,1 +1,1 @@
-https://Ratmir333.github.io/rsschool-cv/cv
+https://popsa9402.github.io/rsschool-cv/cv
